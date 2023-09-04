@@ -12,4 +12,4 @@ fernandes.joao18@escola.pr.gov.br
 
 @fernandesjoao36
 
-![descrição do GIF](link GIF do Tenor)
+
